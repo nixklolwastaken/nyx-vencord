@@ -1,2 +1,2 @@
-# nyx-vencord
-stuff i use in vencord
+# hi!
+this repository contains everything i currently use in vencord!
