@@ -9,5 +9,5 @@ view the [release tab](https://github.com/nixklolwastaken/nyx-vencord/releases) 
 a: i have no idea lol i was bored
 ### wow mr nixklol these settings are awesome can we make out
 a: yes cutie patootie 👅👅
-### this is awesome, where else can i find someone as cool as you??
+### where can i find someone as cool as you??
 well idk about any other people, but feel free to check me out [here](https://guns.lol/nixklol)!
